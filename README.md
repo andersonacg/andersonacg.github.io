@@ -1,2 +1,2 @@
 # andersonacg.github.io
-Curriculo Online - hehe
+Curriculo Online
